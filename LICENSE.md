@@ -1,4 +1,4 @@
-
+aura ascension stealth Script is the best aura ascension Script, featuring speed and aimbot. Safe and powerful for all your needs.
 
 
 
